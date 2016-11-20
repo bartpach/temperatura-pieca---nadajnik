@@ -1,0 +1,1 @@
+# temperatura-pieca---nadajnik
